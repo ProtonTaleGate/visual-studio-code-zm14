@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://ProtonTaleGate.github.io/visual-studio-code-zm14/ ) |
  |---------------------|----------------------:|
 
 
